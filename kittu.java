@@ -1,2 +1,4 @@
  0908 pohj9
- iko
+ iki
+ ort stratgey a1
+ooo`o
